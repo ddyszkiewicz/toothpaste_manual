@@ -1,17 +1,12 @@
 How to apply toothpaste onto a toothbrush
 
 
-Created by Dyszkiewicz.dariusz, 
-with a template
-Last updated: about an hour ago2 min read
-3 people viewed
-
 I. Introduction
 II. Prerequisites
 III. Instructions
 IV. Figures
 I. Introduction
-This manual provides instructions on how to apply toothpaste onto a toothbrush. It is an essential step for proper oral hygiene. Please refer to the instructions and figures below to complete this procedure.
+This manual provides instructions on how to apply toothpaste onto a toothbrush. It is an essential step for proper oral hygiene. Refer to the instructions and figures below to complete this procedure.
 
 II. Prerequisites
 In order to begin applying toothpaste onto a toothbrush, the following conditions must be met:
