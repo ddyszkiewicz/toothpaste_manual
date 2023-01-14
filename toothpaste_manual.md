@@ -1,4 +1,4 @@
-How to apply toothpaste onto a toothbrush
+ to apply toothpaste onto a toothbrush
 
 
 I. Introduction
