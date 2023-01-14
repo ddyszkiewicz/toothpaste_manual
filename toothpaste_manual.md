@@ -1,4 +1,4 @@
- to apply toothpaste onto a toothbrush
+  apply toothpaste onto a toothbrush
 
 
 I. Introduction
